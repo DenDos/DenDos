@@ -1,1 +1,1 @@
-![Wake up](https://media.giphy.com/media/26BoDB8qZw7y34j0A/giphy.gif)
+![Wake up](https://media.giphy.com/media/l41YBkaepEuO6M4IE/giphy.gif)
